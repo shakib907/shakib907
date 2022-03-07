@@ -1,4 +1,4 @@
-(https://pbs.twimg.com/profile_banners/1439550930123255810/1646632782/600x200)
+https://pbs.twimg.com/profile_banners/1439550930123255810/1646632782/600x200
 ### Hi there 👋, My Name Is Shakib Hossen
 #### 👑 I am Web and App Developer 🖊️ Love to write code 🎤 Like to share my knowledge
 ![👑 I am Web and App Developer 🖊️ Love to write code 🎤 Like to share my knowledge]
